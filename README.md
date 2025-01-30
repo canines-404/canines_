@@ -12,7 +12,8 @@ Sitan Evan Ash Ask! ⁶⁶⁶ Rot It Ask
 Tons of bloody tissues all of over my room "](https://open.spotify.com/track/7lOvJBqH38ZY59eLU7bioq?si=97dd4442560845ca)
 
 ┌ 𖤐  EverymanHYBRID [EmH] / Creepypastas [Shippers DNI] ; Games ; Neutral colors ; Dark areas ; Naps ; Music ; Blankets ; Plushies ; Working out ; Fashion ; Ask
-|     
+|
+|
 └ 𖤐  Basic DNI ; Loud noises ; Certain textures ; Bright lights / Bright areas (or things) ; Ask
 
  † [" Baby Hotline, please hold me close to you "](https://open.spotify.com/track/1R8kvV2AgNPCA2Pp4Im1Ao?si=2095dccbce1b4a96)
